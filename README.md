@@ -28,7 +28,7 @@
 
 ### 🌟加入机制：
 
-邀请入群制，但是有些特别：进群需回答邀请码，而邀请码详见 https://bit101.cn/gallery/8253 或 https://www.zzzzquan.cn/2025/08/25/BIT%E5%88%86%E4%BA%AB%E8%BF%9B%E6%AD%A5%E5%B0%8F%E7%BB%84/
+邀请入群制，但是有些特别：进群需回答邀请码，而邀请码详见 https://bit101.cn/gallery/8253 或 https://www.zzzzquan.cn/2025/08/25/share-and-improve-in-BIT/
 
 ### 🌟管理机制：
 
